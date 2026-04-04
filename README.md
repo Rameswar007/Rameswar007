@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently working as a Freelancer. I used to work for KPMG, Coforge.<br>I am an Android mobile application developer<br>I have 10+ years of experience<br>I have done MCA from Utkal University, Odisha
+I am currently working as a Freelancer. I am a former employee KPMG and Coforge.<br>I am an Android mobile application developer<br>I have 10+ years of experience<br>I have done MCA from Utkal University, Odisha
 
 
 ## 🌐 Socials:
